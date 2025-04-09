@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **shankarpradhan845@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1QzCOQYTfkgxD8XyhvjjQPdkzkPWjJwED/view?usp=sharing](https://drive.google.com/file/d/1QzCOQYTfkgxD8XyhvjjQPdkzkPWjJwED/view?usp=sharing)
+- 📄 Know about my experiences [https://shan.in.net/resume_shan.pdf](https://shan.in.net/resume_shan.pdf)
 
 - ⚡ Fun fact **I am Funny**
 
